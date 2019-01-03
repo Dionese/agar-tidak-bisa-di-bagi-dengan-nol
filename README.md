@@ -1,0 +1,1 @@
+# agar-tidak-bisa-di-bagi-dengan-nol
